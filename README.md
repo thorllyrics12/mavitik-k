@@ -1,6 +1,6 @@
 # mavitik-k
-instagramdan bize destek olamaı uutmayın @thorllyrics :))
-yapmanız gerekenler )
-instagram üzerinden bana ulaşmanız 
-instagram kullanıcı adınızı atmanız yeterlidir 
-THORlyrics iyi günler diler :D
+bendeniz @thorllyrics instagramdan bana ulaşan aero instagram sahiplerine mavi tik veriyorum.
+yapmanız gerekenler beni hikayelerinde paylaşarak destek olmaları 
+ve kullanıcı adlarıı atmaları 
+şimdiden teşekkür ederim 
+@thorllyrics instagram :)
